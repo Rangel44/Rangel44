@@ -1,4 +1,4 @@
-Boas vindas ao meu perfil :blue_heart
+Boas vindas ao meu perfil >:)
 
 Meu nome é Arthur Rangel
 
@@ -11,4 +11,4 @@ thurrangel5@gmai.com
 
 @zzrangelzz
 
-https://tenor.com/pt-BR/view/grant-yapping-lucky-star-speech-bubble-gif-5332780545471097334
+![S2](https://tenor.com/pt-BR/view/grant-yapping-lucky-star-speech-bubble-gif-5332780545471097334)
